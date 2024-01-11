@@ -1,6 +1,9 @@
 
 # Política de Privacidad
 
+## FONLES JURídico
+
+
 ## Introducción
 
 Gracias por usar nuestra aplicación. Esta política de privacidad ha sido creada para informarte sobre cómo recopilamos, usamos, divulgamos y protegemos tu información personal.
