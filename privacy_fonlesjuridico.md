@@ -1,7 +1,7 @@
 
 # Política de Privacidad
 
-## FONLES JURídico
+## Fonles Jurídico
 
 
 ## Introducción
